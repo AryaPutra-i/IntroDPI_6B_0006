@@ -1,0 +1,1 @@
+# Pengolahan_citra_3012310006_arya-putra-irwansyah
